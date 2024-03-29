@@ -45,15 +45,25 @@ Tại LEVUSHOP, chúng tôi tin rằng mỗi sản phẩm không chỉ là một
 
 
 LEVUSHOP • Xưởng Sản Xuất Tranh Slogan Tạo Động Lực bằng Gỗ
+
 ❤️ Một sản phẩm từ thương hiệu LEVU® Việt Nam ❤️
 
 – Địa chỉ KD: 282 Quốc Lộ 1A, KP3, P. Tam Bình, TP. Thủ Đức, TP.HCM
+
 – Điện thoại: 0834.522.114  -  0373.740.881  -  0387.605.380
+
 – Email: lethuha114@gmail.com - levu060503@gmail.com
+
 – Giấy phép KD số: 0 3 1 6 9 9 4 4 4 6
+
 – Ngày cấp: 25/10/2021
+
 – Nơi cấp: Sở Kế Hoạch & Đầu Tư TP Hồ Chí Minh
+
 – Số đăng ký nhãn hiệu bởi Cục Sở Hữu Trí Tuệ: 4-2021-41638
+
 – Số chứng nhận bởi Cục Bản Quyền Tác Giả: 5461/2022/QTG
+
 – Số tra cứu website TMĐT trên Bộ Công Thương: 89674
+
 - Website: [https://levushop.com/](https://levushop.com/)
